@@ -17,4 +17,4 @@
 4. Verdeel het beslag over de vormpjes en bak de cupcakes in 20 minuten op 175 °C (boven- en onderwarmte) gaar.
 5. Tijd voor decoratie!
 
-[Voorbeeld foto](http://icons.iconarchive.com/icons/google/noto-emoji-animals-nature/256/22221-cat-icon.png)
+![Voorbeeld foto](https://www.laurasbakery.nl/wp-content/smush-webp/2019/09/basisrecept-vanille-cupcakes-1-e1634665120292.jpg.webp)
